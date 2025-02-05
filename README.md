@@ -1,2 +1,2 @@
 # MADdegens
-MADdegen Ventures is building a social crowdfunding DAO and web3 accelerator called simply, The MADdegens. 👊
+The MΛĐĐΞGΞNS Community [MĐC] is building a social crowdfunding superDAO and web3 accelerator.. 👊
